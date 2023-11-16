@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gilrod- 👀 I’m interested in ...ayudar ,contribuir y apoyar
-- 🌱 I’m currently learning ..
+- 🌱 I’m currently learning ..como operar de forma correc ta para poder progresar
 - 💞️ I’m looking to collaborate on ...lo que pueda- 📫 How to reach me ... rodriguezgilbertrod@gmail.com
 
 <!---
